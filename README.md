@@ -1,1 +1,1 @@
-# git-home
+# 🍓 Greetings, my name is Rachelle 🍒
